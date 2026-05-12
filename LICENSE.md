@@ -1,4 +1,4 @@
-# 
+# new Polymarket Tool | high-frequency-trading + liquidity-provision offers the most advanced Polymarket tool, with high-frequency-trading and liquidity-provision. Ideal for
 
 
 
